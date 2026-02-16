@@ -1,1 +1,0 @@
-# Isoindoline-Pigment-Market
